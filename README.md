@@ -1,1 +1,1 @@
-# B-l-m-Sonu-Calismasi2
+# Bolum-Sonu-Calismasi2
